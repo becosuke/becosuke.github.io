@@ -1,3 +1,0 @@
-# becosuke.github.io
-
-ここになにかかきますよ
